@@ -1,16 +1,17 @@
-## Hi there 👋
+★Hello i'm ZLP
 
-<!--
-**call-me-ZLP/call-me-ZLP** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+★I'm playing Roblox and pony town game!
 
-Here are some ideas to get you started:
+★It's really hard to write English, I only write a little
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+★I'm from Malaysia. I'm good with my friends
+
+★Don't be so mean and don't treat me badly. I already apologized. I'm It's not that I don't want to serve ok⊂⁠(⁠・⁠﹏⁠・⁠⊂⁠)
+
+★pony's town mannequin_mark
+￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣
+<img width="720" height="957" alt="IMG_20260908_211123" src="https://github.com/user-attachments/assets/6e390fa4-6929-47f1-8228-cb5d73b25ee0" />
+
+★thanks you nina😔
+
+★this is my friend give me a picture
