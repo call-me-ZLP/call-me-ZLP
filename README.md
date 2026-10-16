@@ -1,6 +1,6 @@
 <img width="735" height="258" alt="Untitled425_20261016223445" src="https://github.com/user-attachments/assets/ab37f8a0-e09c-4ec7-93e0-950e080b2167" />
 
-[![Hits](https://hits.sh/github.com/call-me-ZLP.svg?label=mannequin_mark&extraCount=2000&color=C47830a&labelColor=9f9f9f)](https://hits.sh/github.com/call-me-ZLP/)
+[![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
 ★Hello i'm ZLP
 
