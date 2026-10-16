@@ -8,7 +8,9 @@
 
 ★I'm from Malaysia. I'm good with my friends
 
-★Don't be so mean and don't treat me badly. I already apologized. I'm It's not that I don't want to serve ok⊂⁠(⁠・⁠﹏⁠・⁠⊂⁠)
+[WALLTER](https://github.com/Wbrickstone) ★ [ALEX](https://github.com/badlything) ★ [MIPY](https://github.com/mipy-ri)
+
+</details>
 
 ★pony's town mannequin_mark
 
