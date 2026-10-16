@@ -1,4 +1,4 @@
-<img width="735" height="331" alt="Untitled416_20261016163053" src="https://github.com/user-attachments/assets/d3f177f3-89a5-47f1-89ee-ec4e1ee9618c" />
+<img width="735" height="258" alt="Untitled425_20261016223445" src="https://github.com/user-attachments/assets/ab37f8a0-e09c-4ec7-93e0-950e080b2167" />
 
 ★Hello i'm ZLP
 
@@ -16,4 +16,4 @@ ____★____★____★____★____★
 
 <img width="1146" height="1657" alt="Untitled423_20261016152012" src="https://github.com/user-attachments/assets/38b20c11-a909-4a49-aa83-dc7df02922ad" />
 
-★cute 
+★this my drawing 
