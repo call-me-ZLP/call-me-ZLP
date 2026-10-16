@@ -10,8 +10,11 @@
 
 ★I'm from Malaysia. I'm good with my friends
 
-</details>
+ <details>
+   
 <summary> moofs!</summary>
+
+
 
 [WALLTER](https://github.com/Wbrickstone) ★ [ALEX](https://github.com/badlything) ★ [MIPY](https://github.com/mipy-ri)
 
@@ -21,7 +24,7 @@
 
 ____★____★____★____★____★
 
-</details>
+ <details>
 <summary> draw about me ^_^</summary>
 
 <img width="1146" height="1657" alt="Untitled423_20261016152012" src="https://github.com/user-attachments/assets/38b20c11-a909-4a49-aa83-dc7df02922ad" />
@@ -29,3 +32,6 @@ ____★____★____★____★____★
 ★this my drawing 
 
 </details>
+ 
+ 
+ 
