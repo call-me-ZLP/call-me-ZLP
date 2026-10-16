@@ -1,4 +1,3 @@
-<img width="1257" height="778" alt="Untitled418_20261016034936" src="https://github.com/user-attachments/assets/a6452d0d-b854-4a63-b339-294d22acd1e8" />
 ★Hello i'm ZLP
 
 ★I'm playing Roblox and pony town game!
