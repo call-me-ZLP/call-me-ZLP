@@ -1,3 +1,5 @@
+<img width="735" height="331" alt="Untitled416_20261016163053" src="https://github.com/user-attachments/assets/d3f177f3-89a5-47f1-89ee-ec4e1ee9618c" />
+
 ★Hello i'm ZLP
 
 ★I'm playing Roblox and pony town game!
@@ -12,8 +14,6 @@
 
 ____★____★____★____★____★
 
-<img width="720" height="957" alt="IMG_20260908_211123" src="https://github.com/user-attachments/assets/6e390fa4-6929-47f1-8228-cb5d73b25ee0" />
+<img width="1146" height="1657" alt="Untitled423_20261016152012" src="https://github.com/user-attachments/assets/38b20c11-a909-4a49-aa83-dc7df02922ad" />
 
-★thanks you nina😔
-
-★this is my friend give me a picture
+★cute 
