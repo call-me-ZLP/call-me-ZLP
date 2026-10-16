@@ -1,5 +1,7 @@
 <img width="735" height="258" alt="Untitled425_20261016223445" src="https://github.com/user-attachments/assets/ab37f8a0-e09c-4ec7-93e0-950e080b2167" />
 
+[![Hits](https://hits.sh/github.com/call-me-ZLP.svg?label=mannequin_mark&extraCount=2000&color=481a1a&labelColor=9f9f9f)](https://hits.sh/github.com/call-me-ZLP/)
+
 ★Hello i'm ZLP
 
 ★I'm playing Roblox and pony town game!
@@ -7,6 +9,9 @@
 ★It's really hard to write English, I only write a little
 
 ★I'm from Malaysia. I'm good with my friends
+
+</details>
+<summary> moofs!</summary>
 
 [WALLTER](https://github.com/Wbrickstone) ★ [ALEX](https://github.com/badlything) ★ [MIPY](https://github.com/mipy-ri)
 
