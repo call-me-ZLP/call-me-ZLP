@@ -28,10 +28,10 @@ ____★____★____★____★____★
    <div align="center">
     
  <details>
-<summary> draw about me ^_^</summary>
+<summary>about^_^</summary>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
-<img width="1257" height="778" alt="Untitled418_20261017181314" src="https://github.com/user-attachments/assets/76af5cf4-29c2-4e2c-83d9-7389e9bef7eb" />
+
 
 </details>
 
