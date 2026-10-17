@@ -23,7 +23,8 @@
 
 ★pony's town mannequin_mark
 
-____★____★____★____★____★
+<img width="736" height="194" alt="Untitled434_20261017205305" src="https://github.com/user-attachments/assets/4a55f6a1-9f94-4387-ad14-a7de670840fb" />
+
     
    <div align="center">
     
