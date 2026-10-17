@@ -42,3 +42,5 @@ ____★____★____★____★____★
 
 </div>
 
+<img width="736" height="316" alt="Untitled433_20261017204443" src="https://github.com/user-attachments/assets/37783fc5-4f06-4cc9-9866-a6e901408532" />
+
