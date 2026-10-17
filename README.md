@@ -29,7 +29,7 @@ ____★____★____★____★____★
 
 <img width="1146" height="1657" alt="Untitled423_20261016152012" src="https://github.com/user-attachments/assets/38b20c11-a909-4a49-aa83-dc7df02922ad" />
 
-★this my drawing 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E%E2%81%A0_%E2%81%A0%5E)](https://git.io/typing-svg) 
 
 </details>
  
