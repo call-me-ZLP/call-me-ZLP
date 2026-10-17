@@ -2,28 +2,34 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
+<p align="center"> 
 ★Hello i'm ZLP
 
+<p align="center"> 
 ★I'm playing Roblox and pony town game!
 
+<p align="center"> 
 ★It's really hard to write English, I only write a little
 
+<p align="center"> 
 ★I'm from Malaysia. I'm good with my friends
 
+  
  <details>
-   
+    
 <summary> moofs!</summary>
-
+ 
 
 
 [WALLTER](https://github.com/Wbrickstone) ★ [ALEX](https://github.com/badlything) ★ [MIPY](https://github.com/mipy-ri)
 
 </details>
 
+<p align="center"> 
 ★pony's town mannequin_mark
 
 ____★____★____★____★____★
-
+<p align="center"> 
  <details>
 <summary> draw about me ^_^</summary>
 
@@ -32,6 +38,4 @@ ____★____★____★____★____★
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E%E2%81%A0_%E2%81%A0%5E)](https://git.io/typing-svg) 
 
 </details>
- 
- 
- 
+
