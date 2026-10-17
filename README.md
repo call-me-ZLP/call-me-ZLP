@@ -30,9 +30,8 @@ ____★____★____★____★____★
  <details>
 <summary> draw about me ^_^</summary>
 
-<img width="1146" height="1657" alt="Untitled423_20261016152012" src="https://github.com/user-attachments/assets/38b20c11-a909-4a49-aa83-dc7df02922ad" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E%E2%81%A0_%E2%81%A0%5E)](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
+<img width="1257" height="778" alt="Untitled418_20261017181314" src="https://github.com/user-attachments/assets/76af5cf4-29c2-4e2c-83d9-7389e9bef7eb" />
 
 </details>
 
