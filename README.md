@@ -28,13 +28,13 @@ ____★____★____★____★____★
    <div align="center">
     
  <details>
-<summary>thanks salgam😁😁😁</summary>
+<summary>about</summary>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
 
-[Salgam](https://wwwtiktok.com/@salgay_12)
+[Straw](https://ihatezlp.straw.page)
 
-https://github.com/user-attachments/assets/54386448-06ea-4dc4-ae53-13f35c0dceae
+
 
 
 
