@@ -4,7 +4,7 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
  
-★Hello i'm ZLP or Zlp(just ask-_-)
+★Hello i'm ZLP or Zlp (just ask-_-)
 
 ★I'm playing Roblox and pony town game!
 
