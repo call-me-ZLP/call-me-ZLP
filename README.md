@@ -29,9 +29,12 @@
    <div align="center">
     
  <details>
-<summary>about</summary>
+<summary>this my draw^_^</summary>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
+
+<img width="1257" height="778" alt="Untitled418_20261018210139" src="https://github.com/user-attachments/assets/fb7ba006-2cf8-4413-960d-5e7510962071" />
+
 
 [Strawpage](https://ihatezlp.straw.page)
 
