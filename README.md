@@ -33,6 +33,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
 
+https://github.com/user-attachments/assets/c835379d-3ee5-4377-b330-4a3e8cb51018
+
 [Strawpage](https://ihatezlp.straw.page)
 
 
