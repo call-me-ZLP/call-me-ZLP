@@ -29,15 +29,13 @@
    <div align="center">
     
  <details>
-<summary>this my draw^_^</summary>
+<summary>I feel like you don't want to serve me</summary>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7890D&center=true&width=435&lines=You+can+ask%3F+;I'm+just+asking%5E_%5E)](https://git.io/typing-svg)
+<img width="720" height="590" alt="Screenshot_2026-10-20-20-51-33-91" src="https://github.com/user-attachments/assets/0731eb3c-0c7a-408f-92b8-ff2b72c7bc1c" />
 
-<img width="1257" height="778" alt="Untitled418_20261018210139" src="https://github.com/user-attachments/assets/fb7ba006-2cf8-4413-960d-5e7510962071" />
+I feel hateful towards my nan. I want to apologize to her. I'm also a bad friend. I just asked Nina
 
-
-[Strawpage](https://ihatezlp.straw.page)
-
+I blocked him because he said "wow really messed up Zlp" that I haven't apologized to him yet¯⁠\⁠_⁠(⁠ ͠⁠°⁠ ͟⁠ ⁠°͠⁠ ⁠)⁠_⁠/⁠¯
 
 </details>
 
