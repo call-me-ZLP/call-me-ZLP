@@ -1,8 +1,10 @@
-<img width="735" height="258" alt="Untitled425_20261016223445" src="https://github.com/user-attachments/assets/ab37f8a0-e09c-4ec7-93e0-950e080b2167" />
-
 <div align="center">
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
+
+<img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
+
+<div align="center">
  
 ★Hello i'm ZLP or Zlp (just ask-_-)
 
