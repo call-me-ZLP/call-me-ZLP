@@ -19,20 +19,6 @@
    <div align="center">
 
 <details>
-<summary>moofs!</summary>
-
-[WALLTER](https://github.com/Wbrickstone) ★ [ALEX](https://github.com/badlything) ★ [MIPY](https://github.com/mipy-ri)
-
-</details>
-
-★pony's town mannequin_mark
-
-<img width="736" height="194" alt="Untitled434_20261017205305" src="https://github.com/user-attachments/assets/4a55f6a1-9f94-4387-ad14-a7de670840fb" />
-
-    
-   <div align="center">
-    
- <details>
 <summary>I feel like you don't want to serve me</summary>
 
 <img width="720" height="590" alt="Screenshot_2026-10-20-20-51-33-91" src="https://github.com/user-attachments/assets/0731eb3c-0c7a-408f-92b8-ff2b72c7bc1c" />
@@ -43,7 +29,35 @@ I blocked him because he said "wow really messed up Zlp" that I haven't apologiz
 
 </details>
 
-</div>
+★pony's town mannequin_mark
 
-<img width="736" height="316" alt="Untitled433_20261017204443" src="https://github.com/user-attachments/assets/37783fc5-4f06-4cc9-9866-a6e901408532" />
+<img width="523" height="558" alt="Untitled410_20261017031807" src="https://github.com/user-attachments/assets/77239d74-40b8-4243-863d-07dde3ba70bb" />
 
+    
+   <div align="center">
+    
+ <details>
+<summary></summary> 
+
+##
+
+The Short Answer
+ 
+Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
+ 
+- Mark loves wood and HATES concrete
+- Wallter loves concrete and thinks wood is inferior
+ 
+Wallter was the one who asked for the divorce, and that's why things are awkward between them now 
+
+##
+
+The Full Story
+
+- They actually built a house together — half wood, half concrete
+- But after the divorce, neither of them wanted to keep the house
+- Mark is still heartbroken and secretly loves Wallter, but Wallter has moved on
+- They even had a son together named Lampert! 
+- Mark got banned from a diner because he couldn't stop crying over the breakup
+ 
+So basically... their whole relationship ended over wood vs. concrete 😂 It's funny but also kind of sad — poor Mark still misses him~ 💔
