@@ -60,4 +60,4 @@ The Full Story
 - They even had a son together named Lampert! 
 - Mark got banned from a diner because he couldn't stop crying over the breakup
  
-So basically... their whole relationship ended over wood vs. concrete 😂 It's funny but also kind of sad — poor Mark still misses him~ 💔
+So basically... their whole relationship ended over wood vs. concrete It's funny but also kind of sad — poor Mark still misses him
