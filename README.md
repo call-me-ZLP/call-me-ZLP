@@ -32,7 +32,6 @@ I blocked him because he said "wow really messed up Zlp" that I haven't apologiz
 ★pony's town mannequin_mark
 
 <img width="523" height="558" alt="Untitled410_20261017031807" src="https://github.com/user-attachments/assets/77239d74-40b8-4243-863d-07dde3ba70bb" />
-
     
    <div align="center">
     
@@ -40,7 +39,6 @@ I blocked him because he said "wow really messed up Zlp" that I haven't apologiz
 <summary></summary> 
 
 ##
-
 The Short Answer
  
 Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
@@ -51,11 +49,10 @@ Wallter and Mark used to be married for 6 years! 💍 They got divorced because 
 Wallter was the one who asked for the divorce, and that's why things are awkward between them now 
 
 ##
-
 The Full Story
 
 - They actually built a house together — half wood, half concrete
-- But after the divorce, neither of them wanted to keep the house
+- But after the dvorce, neither of them wanted to keep the house
 - Mark is still heartbroken and secretly loves Wallter, but Wallter has moved on
 - They even had a son together named Lampert! 
 - Mark got banned from a diner because he couldn't stop crying over the breakup
