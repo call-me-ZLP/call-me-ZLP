@@ -1,5 +1,11 @@
 <div align="center">
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jgyqltpbso44aj6xqxyttsfuqm&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&bar_color=ff8800&bar_color_cover=false">
+  </a>
+</p>
+
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
 <img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
