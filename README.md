@@ -16,7 +16,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}It's$ $\color{#FF8300}really$ $\color{#FF83
 
 $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}Malaysia.$ $\color{#FF8300}I'm$ $\color{#FF8300}good$ $\color{#FF8300}with$ $\color{#FF8300}my$ $\color{#FF8300}friends$
 
-$\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF8300}mannequin$ $\color{#FFD6AD}_$ $\color{#FF8300}mark$
+$\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF8300}mannequin$_$\color{#FF8300}mark$
 
 <img width="523" height="558" alt="Untitled410_20261017031807" src="https://github.com/user-attachments/assets/77239d74-40b8-4243-863d-07dde3ba70bb" />
     
