@@ -8,7 +8,7 @@
 
 <div align="center">
  
-${{\color{#FFD6AD}★}}$ ${{\color{#FF8300}Hello}}$ ${{\color{#FF8300}i'm$ $\color{#FF8300} ZLP or Zlp}}$
+$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP or Zlp$
 
 ${{\color{#FFD6AD}★}}$ ${{\color{#FF8300}I'm}}$ playing Roblox and pony town game!
 
