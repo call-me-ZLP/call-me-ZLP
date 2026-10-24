@@ -8,26 +8,13 @@
 
 <div align="center">
  
-$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP$ or$ Zlp$
+$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP$ $\color{#FF8300}or$ $\color{#FF8300}Zlp$
 
 $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}playing$ $\color{#FF8300}Roblox$ $\color{#FF8300}and$ $\color{#FF8300}pony$ $\color{#FF8300}town$ $\color{#FF8300}game!$
 
 $\color{#FFD6AD}★$ $\color{#FF8300}It's$ $\color{#FF8300}really$ $\color{#FF8300}hard$ $\color{#FF8300}to$ $\color{#FF8300}write$ $\color{#FF8300}English,$ $\color{#FF8300}I$ $\color{#FF8300}only$ $\color{#FF8300}write$ $\color{#FF8300}a$ $\color{#FF8300}little$
 
 $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}Malaysia.$ $\color{#FF8300}I'm$ $\color{#FF8300}good$ $\color{#FF8300}with$ $\color{#FF8300}my$ $\color{#FF8300}friends$
-    
-   <div align="center">
-
-<details>
-<summary>I feel like you don't want to serve me</summary>
-
-<img width="720" height="590" alt="Screenshot_2026-10-20-20-51-33-91" src="https://github.com/user-attachments/assets/0731eb3c-0c7a-408f-92b8-ff2b72c7bc1c" />
-
-I feel hateful towards my nan. I want to apologize to her. I'm also a bad friend. I just asked Nina
-
-I blocked him because he said "wow really messed up Zlp" that I haven't apologized to him yet¯⁠\⁠_⁠(⁠ ͠⁠°⁠ ͟⁠ ⁠°͠⁠ ⁠)⁠_⁠/⁠¯
-
-</details>
 
 ★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF8300}mannequin_mark$
 
