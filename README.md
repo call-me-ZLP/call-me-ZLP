@@ -26,7 +26,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF83
 <summary></summary> 
 
 ##
-The Short Answer
+$\color{#FF8300}The$ $\color{#FF8300}Short$ $\color{#FF8300}Answer$
  
 Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
  
@@ -36,7 +36,7 @@ Wallter and Mark used to be married for 6 years! 💍 They got divorced because 
 Wallter was the one who asked for the divorce, and that's why things are awkward between them now 
 
 ##
-The Full Story
+$\color{#FF8300}The$ $\color{#FF8300}Full$ $\color{#FF8300}Story$
 
 - They actually built a house together — half wood, half concrete
 - But after the dvorce, neither of them wanted to keep the house
