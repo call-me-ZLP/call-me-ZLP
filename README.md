@@ -8,13 +8,13 @@
 
 <div align="center">
  
-$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP or Zlp$
+$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP$ or$ Zlp$
 
-${{\color{#FFD6AD}★}}$ ${{\color{#FF8300}I'm}}$ playing Roblox and pony town game!
+$\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}playing$ $\color{#FF8300}Roblox$ $\color{#FF8300}and$ $\color{#FF8300}pony$ $\color{#FF8300}town$ $\color{#FF8300}game!$
 
-★It's really hard to write English, I only write a little
+$\color{#FFD6AD}★$ $\color{#FF8300}It's$ $\color{#FF8300}really$ $\color{#FF8300}hard$ $\color{#FF8300}to$ $\color{#FF8300}write$ $\color{#FF8300}English,$ $\color{#FF8300}I$ $\color{#FF8300}only$ $\color{#FF8300}write$ $\color{#FF8300}a$ $\color{#FF8300}little$
 
-★I'm from Malaysia. I'm good with my friends
+$\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}Malaysia.$ $\color{#FF8300}I'm$ $\color{#FF8300}good$ $\color{#FF8300}with$ $\color{#FF8300}my$ $\color{#FF8300}friends$
     
    <div align="center">
 
@@ -29,7 +29,7 @@ I blocked him because he said "wow really messed up Zlp" that I haven't apologiz
 
 </details>
 
-★pony's town mannequin_mark
+★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF8300}mannequin_mark$
 
 <img width="523" height="558" alt="Untitled410_20261017031807" src="https://github.com/user-attachments/assets/77239d74-40b8-4243-863d-07dde3ba70bb" />
     
