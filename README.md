@@ -4,7 +4,7 @@
 
 <img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
 
-##
+***
 
 <div align="center">
  
@@ -25,7 +25,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF83
  <details>
 <summary></summary> 
 
-##
+***
 $\color{#FF8300}The$ $\color{#FF8300}Short$ $\color{#FF8300}Answer$
  
 Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
@@ -35,7 +35,7 @@ Wallter and Mark used to be married for 6 years! 💍 They got divorced because 
  
 Wallter was the one who asked for the divorce, and that's why things are awkward between them now 
 
-##
+***
 $\color{#FF8300}The$ $\color{#FF8300}Full$ $\color{#FF8300}Story$
 
 - They actually built a house together — half wood, half concrete
