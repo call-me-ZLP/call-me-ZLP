@@ -8,7 +8,9 @@
 
 <div align="center">
  
-★Hello i'm ZLP or Zlp (just ask-_-)
+$\color{#FFD6AD}★$ 
+
+$\color{#FF8300}Hello$ i'm ZLP or Zlp (just ask-_-)
 
 ★I'm playing Roblox and pony town game!
 
