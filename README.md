@@ -8,11 +8,9 @@
 
 <div align="center">
  
-$\color{#FFD6AD}★$ 
+$\color{#FFD6AD}★$ $\color{#FF8300}Hello$ $\color{#FF8300}i'm$ $\color{#FF8300}ZLP or Zlp (just ask-_-)$
 
-$\color{#FF8300}Hello$ i'm ZLP or Zlp (just ask-_-)
-
-★I'm playing Roblox and pony town game!
+$\color{#FFD6AD}★$ $\color{#FF8300}I'm$ playing Roblox and pony town game!
 
 ★It's really hard to write English, I only write a little
 
