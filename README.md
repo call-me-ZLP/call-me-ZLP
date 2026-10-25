@@ -4,7 +4,7 @@
 
 <img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
 
-$\color{#yellow}{\textsf{this}} $\color{#white}{\texttt{by}} $\color{#black}{fern}} 
+$\color{#yellow}{\textsf this$ $\color{#white}{\textttby$ $\color{#black}{\textttfern$ 
 
 ***
 
