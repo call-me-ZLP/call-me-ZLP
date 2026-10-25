@@ -26,7 +26,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF83
 <summary></summary> 
 
 ***
-$\color{#FF8300}The$ $\color{#FF8300}Short$ $\color{#FF8300}Answer$
+$\color{#FF8300}The/Short/Answer$
  
 Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
  
