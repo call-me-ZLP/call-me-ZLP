@@ -2,8 +2,6 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
-[Ok i have my doc](https://docs.google.com/document/d/18qpJVMnXkzbTWp_QoD6JmOuMG2rklBLFojEkfkA_ihw)
-
 <img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
 
 $\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
